@@ -24,7 +24,7 @@ He took a tentative step through the door and followed the stone path overgrown 
 
 Braus the Zoo Keeper yells at George.
 
-George met the Unicorn King who granted him magic powers. Then George met the Budda and found the true meaning of peace.
+George met the Unicorn King who granted him magic powers. Then George met the Budda and found the true meaning of peace. Then he met a friendly koala named Mike.
 
 The end.
 
